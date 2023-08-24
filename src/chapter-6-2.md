@@ -1,5 +1,3 @@
-Practical Steps to Incorporate Mindful Leadership into Your Own Life
-========================================================================================================================
 
 In the previous chapters, we have explored the concept of mindful leadership and its benefits in the workplace. Now, it's time to put these ideas into practice. In this chapter, we will discuss practical steps that you can take to incorporate mindful leadership into your own life.
 

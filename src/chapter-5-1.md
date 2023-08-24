@@ -1,5 +1,3 @@
-Importance of Mindfulness at the Organizational Level
-===========================================================================================================
 
 In this chapter, we will explore the importance of mindfulness practices at the organizational level and how they can contribute to creating a more mindful and productive work environment.
 

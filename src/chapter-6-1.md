@@ -1,5 +1,3 @@
-Case Studies of Successful Mindful Leaders
-==============================================================================================
 
 In this chapter, we will examine case studies of successful leaders who have integrated mindfulness practices into their leadership style.
 

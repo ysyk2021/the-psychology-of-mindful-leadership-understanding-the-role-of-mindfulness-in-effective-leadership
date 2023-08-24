@@ -1,5 +1,3 @@
-Importance of Mindfulness in Leadership
-================================================================
 
 In today's fast-paced and constantly changing work environment, the importance of mindfulness in leadership cannot be overstated. Mindfulness is a powerful tool that can help leaders stay focused, make better decisions, communicate more effectively, and build stronger relationships with team members. In this chapter, we will explore why mindfulness is so important in leadership.
 

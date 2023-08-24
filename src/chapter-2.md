@@ -1,5 +1,3 @@
-Chapter 2: The Psychology of Mindful Leadership
-===============================================
 
 Overview of Leadership Psychology
 ---------------------------------

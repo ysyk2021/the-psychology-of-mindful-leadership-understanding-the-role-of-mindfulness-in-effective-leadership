@@ -1,5 +1,3 @@
-Mindful Conflict Resolution
-==============================================================================
 
 Conflict is an inevitable part of any workplace, but it doesn't have to be a negative experience. By incorporating mindfulness into the conflict resolution process, leaders can create a more positive and productive work environment. In this chapter, we will explore the concept of mindful conflict resolution and how it can be used in leadership.
 

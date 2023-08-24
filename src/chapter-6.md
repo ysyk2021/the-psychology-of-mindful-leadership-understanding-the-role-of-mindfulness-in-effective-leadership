@@ -1,5 +1,3 @@
-Chapter 6: Applying Mindful Leadership in Practice
-==================================================
 
 Incorporating mindfulness-based practices into leadership can lead to numerous benefits for both leaders and their organizations. In this chapter, we will explore case studies of successful mindful leaders and practical steps to incorporate mindful leadership into your own life.
 

@@ -1,5 +1,3 @@
-Mindful Resilience
-===================================================================
 
 In this chapter, we will explore the concept of mindful resilience and how it can help leaders to develop greater emotional intelligence and adaptability in the face of adversity.
 

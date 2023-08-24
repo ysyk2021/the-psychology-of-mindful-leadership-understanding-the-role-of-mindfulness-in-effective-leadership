@@ -1,5 +1,3 @@
-Definition of Mindful Leadership
-=========================================================
 
 Leadership is a complex and multifaceted concept, and the idea of mindful leadership adds another layer to this complexity. In this chapter, we will define what we mean by "mindful leadership" and why it is important in today's fast-paced work environment.
 

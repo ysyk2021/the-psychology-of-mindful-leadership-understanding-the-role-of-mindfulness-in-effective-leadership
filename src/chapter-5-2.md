@@ -1,5 +1,3 @@
-Strategies for creating a mindful organizational culture
-==============================================================================================================
 
 Creating a mindful organizational culture involves fostering an environment that supports and encourages mindfulness practices among employees at all levels. This chapter will outline several strategies for creating a mindful organizational culture.
 

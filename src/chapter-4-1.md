@@ -1,5 +1,3 @@
-Mindful Self-Awareness
-=======================================================================
 
 One of the key components of mindful leadership is self-awareness. By becoming more aware of our thoughts, emotions, and behaviors, we can better understand ourselves as leaders and make more informed decisions. In this chapter, we will explore the concept of mindful self-awareness and how it can be developed to enhance our leadership skills.
 

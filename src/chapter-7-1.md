@@ -1,5 +1,3 @@
-Potential Obstacles to Practicing Mindful Leadership
-=================================================================================================================
 
 While mindfulness practices can have numerous benefits for leaders, there are also potential challenges and limitations to practicing mindful leadership. In this chapter, we will examine some of these obstacles.
 

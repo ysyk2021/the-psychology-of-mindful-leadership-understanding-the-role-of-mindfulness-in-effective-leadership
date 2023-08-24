@@ -1,5 +1,3 @@
-Chapter 5: Creating a Mindful Organizational Culture
-====================================================
 
 Effective leadership involves creating a positive and supportive work environment that fosters open communication, collaboration, and innovation. Mindful leadership can help create such an environment by incorporating mindfulness-based practices at the organizational level. In this chapter, we will explore the importance of mindfulness at the organizational level and strategies for creating a mindful organizational culture.
 

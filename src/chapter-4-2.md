@@ -1,5 +1,3 @@
-Mindful Empathy
-================================================================
 
 In addition to self-awareness, another key component of mindful leadership is empathy. Empathy involves understanding and sharing the feelings and perspectives of others, and it can be a powerful tool for building relationships and motivating teams. In this chapter, we will explore the concept of mindful empathy and how it can be developed to enhance our leadership skills.
 

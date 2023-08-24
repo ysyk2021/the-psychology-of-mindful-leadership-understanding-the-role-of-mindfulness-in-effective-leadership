@@ -1,5 +1,3 @@
-Overview of Leadership Psychology
-==================================================================================
 
 Before we can fully understand the role of mindfulness in effective leadership, it's important to first understand the basics of leadership psychology. In this chapter, we will provide an overview of key concepts and theories in leadership psychology.
 
@@ -37,5 +35,4 @@ Conclusion
 ----------
 
 Leadership psychology provides a foundation for understanding the various approaches and theories around effective leadership. From trait theory to transformational theory, each concept has its own unique perspective on what makes a good leader. Mindful leadership builds on these theories by incorporating mindfulness and empathy into the leadership process. By understanding the fundamentals of leadership psychology, we can better understand how mindfulness fits into the larger picture of effective leadership.
-
 

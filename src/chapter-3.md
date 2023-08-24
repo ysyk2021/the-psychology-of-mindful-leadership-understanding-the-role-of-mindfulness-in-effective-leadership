@@ -1,5 +1,3 @@
-Chapter 3: Mindfulness-Based Leadership Practices
-=================================================
 
 Mindful leadership involves incorporating mindfulness-based practices into leadership approaches, including decision making, communication, and conflict resolution. In this chapter, we will explore these essential mindfulness-based leadership practices.
 

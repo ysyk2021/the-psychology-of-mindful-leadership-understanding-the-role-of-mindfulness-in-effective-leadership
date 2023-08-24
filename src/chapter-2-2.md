@@ -1,5 +1,3 @@
-Understanding the Connection Between Mindfulness and Leadership Psychology
-===========================================================================================================================
 
 While mindfulness may seem like a relatively new concept in the field of leadership psychology, there is actually a strong connection between the two. In this chapter, we will explore the relationship between mindfulness and leadership psychology.
 

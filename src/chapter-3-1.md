@@ -1,5 +1,3 @@
-Mindful Decision Making
-==========================================================================
 
 Effective decision-making is a crucial component of leadership, and incorporating mindfulness into the decision-making process can lead to more informed and thoughtful decisions. In this chapter, we will explore the concept of mindful decision making and how it can be used in leadership.
 

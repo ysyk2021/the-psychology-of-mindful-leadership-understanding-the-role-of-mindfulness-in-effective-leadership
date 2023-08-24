@@ -1,5 +1,3 @@
-Mindful Communication
-========================================================================
 
 Effective communication is a key component of leadership, and incorporating mindfulness into the communication process can lead to more positive and productive interactions with team members. In this chapter, we will explore the concept of mindful communication and how it can be used in leadership.
 
