@@ -1,5 +1,4 @@
-Chapter 2: Overview of Leadership Psychology
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of leadership psychology and its crucial role in understanding effective leadership. Leadership psychology explores the psychological processes, traits, behaviors, and influences that contribute to successful leadership. By delving into the complexities of human behavior and cognition, leaders can gain insights into their own strengths and areas for growth, as well as develop strategies to maximize their leadership effectiveness.
 

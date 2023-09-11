@@ -1,5 +1,4 @@
-Chapter 6: Mindful Empathy
-==========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of mindful empathy and its crucial role in effective leadership. Mindful empathy involves developing a deep understanding and compassionate connection with others by being fully present, attentive, and responsive to their thoughts, feelings, and experiences. By cultivating mindful empathy, leaders can foster stronger relationships, enhance communication, and create a culture of compassion within their organizations.
 

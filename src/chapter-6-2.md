@@ -1,5 +1,4 @@
-Chapter 7: Practical Steps to Incorporate Mindful Leadership into Your Own Life
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore practical steps to incorporate mindful leadership principles into your own life. By integrating mindfulness practices and adopting a mindful leadership approach, you can enhance your effectiveness as a leader and create a positive impact on those around you.
 

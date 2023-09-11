@@ -1,5 +1,4 @@
-Chapter 5: Mindful Resilience
-=============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of mindful resilience and its significance in effective leadership. Mindful resilience is the ability to bounce back from adversity, adapt to change, and thrive in the face of challenges. By incorporating mindfulness practices into their lives, leaders can cultivate resilience and navigate difficult situations with greater ease and clarity.
 

@@ -1,5 +1,4 @@
-Chapter 8: Case Studies of Successful Mindful Leaders
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore case studies of successful mindful leaders who have effectively integrated mindfulness into their leadership practices. These leaders serve as inspiring examples of how mindfulness can transform the way we lead and create positive impact in various fields.
 

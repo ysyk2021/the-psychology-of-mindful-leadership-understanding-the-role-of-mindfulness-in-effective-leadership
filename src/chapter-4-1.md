@@ -1,5 +1,4 @@
-Chapter 3: Mindful Self-Awareness
-=================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of mindful self-awareness and its significance in effective leadership. By cultivating self-awareness through mindfulness practices, leaders can better understand themselves, their emotions, and their impact on others. This heightened awareness lays the foundation for authentic and impactful leadership.
 
